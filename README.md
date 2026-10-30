@@ -2,6 +2,7 @@
 
 🧠 Bsc. Cybersecurity From Redeemers University<br/>
 👨‍💻 Frontend Dev<br/>
+👨‍💻 UI/UX designer<br/>
 👨‍💻 IT support intern at Opay Digital service<br/>
 💎 I create website copies and templates to stay consistent<br/>
 👕 I post images of them on [instagram](https://www.instagram.com/victorabiodun030/)
